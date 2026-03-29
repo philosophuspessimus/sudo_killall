@@ -1,4 +1,4 @@
-# Purposeful Peaceful Extinction Plan (PPEP)
+# `sudo_killall`: A Purposeful Peaceful Extinction Plan (PPEP) to peacefully wipe out all sentient life
 
 A plan to take care of the fundamental flaw of life and existence itself i.e. `Suffering`! I define it as 
 
