@@ -5,7 +5,7 @@ A plan to take care of the fundamental flaw of life and existence itself i.e. `S
 `Any experience that is undesirable, and something that you would rather not want to go through with if not for the lure of the reward that entices you to undergo it.`
 
 This includes everything from:
-- Having to go to school for years to learn a skill in order to use that skill to be able to earn money to survive. Of course a more optimistic spin on this is the 'opportunity to be able to contribute to human socity! To give back as a payment in return for all that the society has done for you!' but this is extremely fallacious for many reasons that will soon become apparent.
+- Having to go to school for years to learn a skill in order to use that skill to be able to earn money to survive. Of course a more optimistic spin on this is the 'opportunity to be able to contribute to human society! To give back as a payment in return for all that the society has done for you!' but this is extremely fallacious for many reasons that will soon become apparent.
 - ...
 
 The desired outcome is a gradual winding down of the machinery of life on earth as peacefully and gracefully as possible, but once a certain threshold of grace and peace in the process has been established and guaranteed, it must be executed as soon as possible to prevent even a second of additional suffering to any sentient being on earth that either currently exists or will soon exist as a result of reproduction.
